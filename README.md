@@ -1,6 +1,5 @@
 Hi there, about me:
 
-
 This is my 272 assignment 
 I'm Zama Sangweni born in Mpumalanga
 I really love video games and soccer
